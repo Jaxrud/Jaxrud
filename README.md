@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Jaxrud
+- 👋 Hi, I’m @Jaxrud also Jimmarn
 - 👀 I’m interested in the world, the universe and gaming
 - 🌱 I’m currently learning to play the piano... hm?
 - 💞️ I’m looking to collaborate on ... ?
